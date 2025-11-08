@@ -1,2 +1,2 @@
 # RCFR_support_bot
-Private.
+River City Fire Rescue, ERLC® Offical Property. Open-sourscing restricted. Do not steal.
